@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DerAndere444
+- 👀 I’m interested in ...
+- i love Linux 
